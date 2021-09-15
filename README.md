@@ -1,3 +1,3 @@
 # Bibekjyoti
 
-https://bibek752.github.io/Bibekjyoti  tab here
+https://bibek752.github.io/Bibekjyoti/  tab here
